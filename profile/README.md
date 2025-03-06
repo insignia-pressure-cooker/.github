@@ -11,7 +11,7 @@
 
 <p>The <strong>Insignia Pressure Cooker</strong> is a budget-friendly multi-cooker that provides efficient and convenient meal preparation. Designed with multiple cooking functions, it offers a great alternative to high-end pressure cookers without compromising on performance.</p>
 
-[**✅ Buy No at Amazon**](https://amzn.to/4kuTI9a)
+[**✅ Buy Now at Amazon**](https://amzn.to/4kuTI9a)
 
 <h2>Why Choose an Insignia Pressure Cooker?</h2>
 
@@ -27,7 +27,8 @@
     <li><strong>Removable Non-Stick Inner Pot</strong>: Easy to clean and dishwasher-safe.</li>
 </ul>
 
-[**✅ Buy No at Amazon**](https://amzn.to/4kuTI9a)
+[**✅ Buy Now at Amazon**](https://amzn.to/4kuTI9a)
+
 
 <h2>Pros & Cons of the Insignia Pressure Cooker</h2>
 
